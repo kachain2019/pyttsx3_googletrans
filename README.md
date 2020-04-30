@@ -9,6 +9,7 @@ Python3
 
 .
 ฝากติดตามเพจด้วยจ้า มีกลุ่มด้วยนะรู้ยัง👇🏻👇🏻👇🏻
+
 .
 👉🏻 https://www.facebook.com/learning3thai/
 
